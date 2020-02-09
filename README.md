@@ -1,1 +1,0 @@
-# Hal turidu haa?
